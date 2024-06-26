@@ -1,4 +1,5 @@
-# 💫 About Me:
+# 🙋‍♂️ HI there Welcome to my account 
+# I'm Hussam 
 🧑‍💻 Software developer with a deep love for solving complex problems. 
 
 
